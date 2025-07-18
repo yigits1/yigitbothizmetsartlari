@@ -1,0 +1,1 @@
+Verileriniz saklanmıyor.
